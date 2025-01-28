@@ -5,4 +5,3 @@
 - 👯 I’m looking to collaborate on exciting web development projects with a creative edge.
 - 🤔 Ask me about combining technical skills with a background in copywriting and marketing.
 - 💬 Let’s connect: [LinkedIn](https://www.linkedin.com/in/justin-fanton-2034551a8)
-- ⚡ Fun fact: I bring storytelling into my code to craft seamless user experiences!
